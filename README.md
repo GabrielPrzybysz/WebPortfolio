@@ -1,1 +1,0 @@
-# gabrielprzybysz.github.io
